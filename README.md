@@ -1,6 +1,5 @@
-
-
-
+#By Abdulla Khalifa 
+# 𝓦𝖗𝖎𝖙𝖊𝖗 𝒶𝓃𝒹 𝓝𝖔𝖛𝖊𝖑𝖎𝖘𝖙
 ✗Drought in the Oil Era
 A severe crisis erupted during the 1920s. What Britain described as “reforms” in Bahrain proved disastrous in every sense of the word: the maritime labour force declined to its lowest level, and tens of thousands of citizens emigrated to other parts of the Gulf, as well as to Iraq and Iran.
 Bahrain had previously sustained a large population. If we assess Bahrain’s productive labour force in the nineteenth century, we encounter striking figures: in 1833, the number of vessels reached 1,500, while Bahrain’s revenue from pearl diving in that same year amounted to 3,240,000 rupees. (See Bahraini Surplus Value.)
@@ -35,9 +34,9 @@ As the Second World War came to an end, it became apparent that workers’ condi
 Although the lower-middle strata suffered from declining trade and the deterioration of the market, one group of merchants exploited these circumstances to rise substantially within economic life.
 The merchants nevertheless made enormous profits. Belgrave observed that many houses constructed after the war had been financed through black-market trading. The British Political Agent submitted a report stating that a plot of land previously valued at 2,000 rupees had risen in value to 70,000 rupees after the war. (Ibid., p. 235).
 Belgrave did not acknowledge that the poor had become increasingly impoverished and required substantial improvements in their housing and general living conditions. Instead, the appropriation of the land inhabited by workers and sailors began. Rising land prices encouraged speculation; because these areas were occupied by the general population in dilapidated huts, their inhabitants were forcibly displaced through a wave of fires that swept across the sites and left them empty.
-Through the sale of these lands and the accumulation of profits from pearl diving and oil, affluent and middle strata emerged that devoured the wealth accumulated over the course of the twentieth century.القحط في زمن النفط
+Through the sale of these lands and the accumulation of profits from pearl diving and oil, affluent and middle strata emerged that devoured the wealth accumulated over the course of the twentieth century.
 Yet during the era of the huts, political awareness was increasing, and intellectuals from the middle strata joined oil workers in mobilising to transform the country’s underdeveloped economic order.
-
+القحط في زمن النفط
 حدثت أزمةٌ عاصفة في زمن العشرينيات، فما قالته بريطانيا عن (الإصلاحات) في البحرين كان كارثة بكل معنى الكلمة، فقد انخفضت قوة العمل البحرية إلى أدنى مستوياتها، وهاجر عشرات الآلاف من المواطنين إلى مناطق أخرى في الخليج وإلى العراق وإيران.
 كانت البحرين قد شهدت رقماً سكانياً عالياً فإذا (قسنا قوة العمل المنتجة البحرينية في القرن التاسع عشر فسنجد أرقاماً كبيرة، فقد بلغ عدد السفن سنة 1500،1833 سفينة، وكان إيراد البحرين يبلغ من الغوص في السنة نفسها 3,240,000 روبية.)، (راجع فائض القيمة البحريني).
 إن حجم قوة الإنتاج هنا يعني أن عدد السكان يتجاوز المائة والخمسين ألفاً في بداية القرن التاسع عشر، في حين أن إحصاء السكان سنة 1941، يثبت أن عدد السكان هو تسعون ألفاً فقط! كانت كثرة أعداد السكان البحرينيين تقود إلى التمركز وتضخم قوة الناس بالتالي، وهو أمر تفرضه الخريطة الجغرافية وطابع الاقتصاد وتطور المواصلات.
