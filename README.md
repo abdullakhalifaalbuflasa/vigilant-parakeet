@@ -1,5 +1,9 @@
 #By Abdulla Khalifa 
 # 𝓦𝖗𝖎𝖙𝖊𝖗 𝒶𝓃𝒹 𝓝𝖔𝖛𝖊𝖑𝖎𝖘𝖙
+
+عبـــــــدالله خلـــــــيفة
+https://abdullakhalifa.com
+
 ✗Drought in the Oil Era
 A severe crisis erupted during the 1920s. What Britain described as “reforms” in Bahrain proved disastrous in every sense of the word: the maritime labour force declined to its lowest level, and tens of thousands of citizens emigrated to other parts of the Gulf, as well as to Iraq and Iran.
 Bahrain had previously sustained a large population. If we assess Bahrain’s productive labour force in the nineteenth century, we encounter striking figures: in 1833, the number of vessels reached 1,500, while Bahrain’s revenue from pearl diving in that same year amounted to 3,240,000 rupees. (See Bahraini Surplus Value.)
